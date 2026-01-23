@@ -1,4 +1,4 @@
-Martín Rivera Salazar
-UNiversidad Pontificia Bolivariana 
-Ingeniería Aeronáutica 
-2026
+Martín Rivera Salazar    
+Universidad Pontificia Bolivariana     
+Ingeniería Aeronáutica     
+2026    
